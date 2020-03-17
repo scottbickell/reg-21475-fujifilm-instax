@@ -1,0 +1,1 @@
+# reg-21475-fujifilm-instax
